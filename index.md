@@ -2,6 +2,8 @@
 
 Finding a reliable pet-sitter/walker is hard work. Scheduling & coordinating the logistics can be even more challenging! Rest assure, I’m here to relieve you of your pet-care woes so you can have a stress & worry-free time away from your furry loved ones. Enjoy that vacation to the mountains that you’ve always wanted.
 
+![End of Day Check-Up](https://i.ibb.co/pPGkdRg/pets-16.jpg)
+
 In an over saturated pet-care market, why employ my expert pet-sitting/walking services over the others?
 
 Let me tell you THREE reasons why to use my services over the online services of others.
@@ -18,6 +20,8 @@ Outside those qualities, I have/can watch dogs, cats, and exotic pets such as ra
 * Do you try to Buy Green and Shop Local?
 
 Every dollar you spend with me, directly recirculates through our Louisville, Colorado economy.
+
+![Local Economy](https://i.ibb.co/smVmXJc/Colorado.jpg)
 
 Your “pet-sitting” dollars go immediately back into our morning farmer’s market, where we purchase our food to nourish our two growing children. It recirculates to support the local recreation center, book stores, and dining establishments. A dollar spent with me (versus Rover or other Silicon Valley applications) is a dollar supporting your local economy. That’s win-win! Unfortunately, due to my family’s schedule (full-time Mom of two wonderful children), I typically do not perform any over night pet-sitting services.
 
