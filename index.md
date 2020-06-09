@@ -1,5 +1,7 @@
 ## Welcome to Happy Paws Pet Sitting
 
+![Happy Paws](https://i.ibb.co/chm5HJr/Happy-Paws.jpg)
+
 Finding a reliable pet-sitter/walker is hard work. Scheduling & coordinating the logistics can be even more challenging! Rest assure, I’m here to relieve you of your pet-care woes so you can have a stress & worry-free time away from your furry loved ones. Enjoy that vacation to the mountains that you’ve always wanted.
 
 ![End of Day Check-Up](https://i.ibb.co/pPGkdRg/pets-16.jpg)
@@ -20,6 +22,7 @@ Outside those qualities, I have/can watch dogs, cats, and exotic pets such as ra
 * Do you try to Buy Green and Shop Local?
 
 Every dollar you spend with me, directly recirculates through our Louisville, Colorado economy.
+
 
 ![Local Economy](https://i.ibb.co/smVmXJc/Colorado.jpg)
 
@@ -42,3 +45,5 @@ Brittney Ringler
 Boulder Happy Paws
 Your Dependable Local Pet Sitter
 (269) 470-7533
+
+![Boulder Happy Paws](https://i.ibb.co/sFxbNXy/Happy-Paws-Flyer.jpg)
