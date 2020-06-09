@@ -9,6 +9,8 @@ Let me tell you THREE reasons why to use my services over the online services of
 * I possess 15-years of working experience as a veterinarian assistant & technician. You can vacation away peacefully knowing I am trained to recognize medical signs and will alert you and your veterinarian in any emergency.
 * I ABSOLUTELY love animals and always been passionate about working and with furry loved-ones. You can sleep peacefully knowing your furry family members will be treated with the same love I devote to my own pets.
 
+![Cute Pet](https://i.ibb.co/6w6HT65/pets-13.jpg)
+
 Outside those qualities, I have/can watch dogs, cats, and exotic pets such as rabbits, ferrets, birds, horses and more! No breed is too strange nor too exotic; chances are, I’ve worked and cared for it.
 
 **If that’s not enough, how about this?**
