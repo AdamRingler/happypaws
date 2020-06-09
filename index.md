@@ -11,7 +11,7 @@ Let me tell you THREE reasons why to use my services over the online services of
 
 Outside those qualities, I have/can watch dogs, cats, and exotic pets such as rabbits, ferrets, birds, horses and more! No breed is too strange nor too exotic; chances are, I’ve worked and cared for it.
 
-If that’s not enough, how about this?
+**If that’s not enough, how about this?**
 * Do you care about our local economy?
 * Do you try to Buy Green and Shop Local?
 
@@ -25,7 +25,10 @@ I look forward to hearing from you!
 
 ### Services
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/AdamRingler/happypaws.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+* Pet-Sitting
+* Dog-Walking
+* Nail Trims
+* Gland Expression
 
 ### Contact
 
